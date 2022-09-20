@@ -1,4 +1,4 @@
-# [Név]
+# [Lorinc]
 
 ## Hogyan kezdj neki?
 
